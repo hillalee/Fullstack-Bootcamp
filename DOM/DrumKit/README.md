@@ -1,1 +1,1 @@
-Drum kit exrcise, need to add sounds and photos
+Drum kit exercise, need to add sounds and photos
